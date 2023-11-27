@@ -9,4 +9,6 @@ I'm on...
 <br>
 [Belletristica](https://belletristica.com/en/users/19251-sarah-hope)
 <br>
+[Wattpad](https://www.wattpad.com/user/SarahHopeBooks)
+<br>
 [Substack](https://sarahhope.substack.com)
